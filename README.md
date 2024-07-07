@@ -9,7 +9,5 @@ Welcome to my GitHub profile! I'm passionate about coding and creating new proje
 
 📫 You can reach me via email at bftirich@gmail.com or connect with me on www.linkedin.com/in/ftirichbassem.
 
-😄 Pronouns: He/Him
-
 Thanks for stopping by! Let's create something awesome together. 🚀
 
